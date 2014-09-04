@@ -2,11 +2,14 @@
 
 I'm a swede with a background in media technology 
 
-Likes:
 
-* Bike
-* Burritos
-* Open Source
-* Dancing 
+I could teach:
+* Swedish 
+* Playing the violin 
 
-![dancing baby](insert link here)
+
+
+![I'm so fancy](http://1.bp.blogspot.com/-HSupNdwer0s/UvTtB0_BpgI/AAAAAAAANoM/-1jnTeWqKbg/s1600/food1.gif)
+
+EMOJI
+:boom: emoji :8ball:
