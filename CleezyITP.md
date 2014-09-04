@@ -7,9 +7,10 @@
 * how to draw on my eyebrows
 * how to stick out your stomach so that it makes you look pregnant    and thus get good seats and avoid lines
 
-##PHOTO OF ME 
+##Photo of me 
 ![TYRA] (http://media.tumblr.com/1a9fdaa46d43620d81bc91efae194387/tumblr_inline_mo97f1WhW51qz4rgp.gif)
 
 
 ![KITTY KAT] (http://i259.photobucket.com/albums/hh312/nufftenthousand/rio21.jpg)
-##EMOJI REP :hamburger: :fries:
+##Emoji representation
+:hamburger: :fries:
