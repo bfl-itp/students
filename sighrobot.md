@@ -8,4 +8,4 @@
 * Basic music theory
 * How to eat a Reese's
 
-![alt text](http:/madb.us/art/kentile.gif "Title")
+![alt text](http:/madb.us/art/kentile.gif)
