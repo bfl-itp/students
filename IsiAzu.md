@@ -3,7 +3,7 @@
 * Sculpture to attract bees :honeybee:
 * Bee jewelry :honeybee:
 * Painting & Illustration of bees :honeybee:
-* Other bee related things :honeybee::honeybee:
+* :honeybee: Other bee related things :honeybee:
 
 
 ## BEES!
