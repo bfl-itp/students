@@ -10,4 +10,4 @@
 
 ![alt text](http://madb.us/art/kentile.gif)
 
-:station:  :bullettrain_side:  :light_rail:
+I like transit: :station:  :bullettrain_side:  :light_rail:
